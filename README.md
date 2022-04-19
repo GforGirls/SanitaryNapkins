@@ -76,6 +76,17 @@ https://www.jiemian.com/article/7249675.html
 
 https://zh.wikipedia.org/wiki/%E5%AE%9D%E6%B4%81#%E4%B8%AD%E6%AF%92%E6%80%A7%E4%BC%91%E5%85%8B%E7%BB%BC%E5%90%88%E5%BE%81%E4%B8%8E%E5%8D%AB%E7%94%9F%E6%A3%89%E6%9D%A1
 
-# 宝洁
-## 旗下卫生巾品牌
+# 高洁丝
+## 创始国：美国
+## 旗下品牌
+高洁丝卫生巾
 ### 那些故事
+#### 男人用卫生巾
+![image](https://user-images.githubusercontent.com/103972766/163899132-eed4cd69-ac47-463f-b24e-295a56765d6d.png)
+
+#### 虫卵事件
+
+
+#### 参考文献
+https://new.qq.com/omn/20211230/20211230A079M200.html
+
