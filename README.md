@@ -19,23 +19,41 @@ SK-II
 海飞丝
 
 沙宣（Vidal Sassoon）
-伊卡璐（Clairol）中国香港
-吉列公司（Gillette）中国香港台湾地区
-吉列威锋（Gillette Vector）中国香港台湾地区
-吉列锋速3（Gillette Mach3）中国香港台湾地区
-吉列锋隐（Gillette Fusion）中国香港台湾地区
-德国博朗（Braun）中国香港台湾地区
-欧乐-B（欧乐-B）中国香港台湾地区
-舒肤佳（Safeguard）中国
-佳洁士（Crest）中国香港台湾地区
-护舒宝（Whisper）中国香港台湾地区
-汰渍（Tide）中国香港台湾地区
-碧浪（Ariel）中国香港台湾地区
-帮宝适（Pampers）中国香港台湾地区
-香必飘（Ambi Pur）香港台湾地区
-当妮（Downy）中国
-朵朵（Naturella）中国
-丹碧丝（Tampax）中国
+
+伊卡璐（Clairol）
+
+吉列公司（Gillette）
+
+吉列威锋（Gillette Vector）
+
+吉列锋速3（Gillette Mach3）
+
+吉列锋隐（Gillette Fusion）
+
+德国博朗（Braun）
+
+欧乐-B（欧乐-B）
+
+舒肤佳（Safeguard）
+
+佳洁士（Crest）
+
+护舒宝（Whisper）
+
+汰渍（Tide）
+
+碧浪（Ariel）
+
+帮宝适（Pampers）
+
+香必飘（Ambi Pur）
+
+当妮（Downy）
+
+朵朵（Naturella）
+
+丹碧丝（Tampax）
+
 
 ### 那些故事
 
