@@ -6,13 +6,19 @@
 # 宝洁
 ## 创始国：美国
 ## 旗下产品
-玉兰油（Olay）中国香港台湾地区
-SK-II中国香港台湾地区
+玉兰油
+
+SK-II 
+
 东方季道
-潘婷（Pantene）中国香港台湾地区
-飘柔（Rejoice）中国香港台湾地区
-海飞丝中国香港台湾地区
-沙宣（Vidal Sassoon）中国香港台湾地区
+
+潘婷（Pantene）
+
+飘柔（Rejoice）
+
+海飞丝
+
+沙宣（Vidal Sassoon）
 伊卡璐（Clairol）中国香港
 吉列公司（Gillette）中国香港台湾地区
 吉列威锋（Gillette Vector）中国香港台湾地区
