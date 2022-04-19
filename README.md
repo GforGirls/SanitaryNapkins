@@ -49,6 +49,7 @@ SK-II中国香港台湾地区
 
 #### 参考文献
 https://www.jiemian.com/article/7249675.html
+https://zh.wikipedia.org/wiki/%E5%AE%9D%E6%B4%81#%E4%B8%AD%E6%AF%92%E6%80%A7%E4%BC%91%E5%85%8B%E7%BB%BC%E5%90%88%E5%BE%81%E4%B8%8E%E5%8D%AB%E7%94%9F%E6%A3%89%E6%9D%A1
 
 # 宝洁
 ## 旗下卫生巾品牌
